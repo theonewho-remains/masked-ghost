@@ -1,16 +1,21 @@
-### Hi there 👋
+please call me by my IRL skin names!
 
-<!--
-**masked-ghost/masked-ghost** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+IRLS
+- Allister (pokemon)
+- Hansel (sodikken)
+- Toro Inoue 
+- Loki (tboi)
+- Azazel (tboi)
+- Flaky (htf)
+- Lamb (cotl)
+- Jevil (dr)
+- Kedamono (ptp)
+- Basil (omori)
 
-Here are some ideas to get you started:
+preferred pronouns
+- He/Him
+- They/Them
+- Hy/Hymm
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+~ <3
